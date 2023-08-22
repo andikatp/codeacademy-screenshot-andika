@@ -1,0 +1,1 @@
+# codeacademy-screenshot-andika
